@@ -32,6 +32,8 @@ Can CSR lead to a change in the nature of all of a firm's communication? If CSR 
 
 **How do organizational values affect organizational communication?**
 
+Does CSR inherently require external communication?  If it doesn't, what does that mean to the stragetic understanding of CSR? 
+
 > We welcome a broad range of questions and topic areas within the broad theme – some indicative questions include:
 
 >  * What narrative structures and components are used to give meaning to the process of CSR design and implementation?
